@@ -3,7 +3,7 @@
 
 **Hello, my name is Martin and im an digital artist.**
 
-I specialize in mostly in cover arts and merch/clothing design. 
+I specialize in cover arts and merch/clothing design. 
 
 In my spare time I love to do Thaibox, skate and spend time with my friends and family.
 
