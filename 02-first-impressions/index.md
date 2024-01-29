@@ -12,7 +12,7 @@ In my spare time I love to do Thaibox, skate and spend time with my friends and 
 
 
 
-My goal with digital art is to work with my favorite music Artist and create my own succesful clothing brand. 
+My goal with digital art is to work with my favorite music Artists and create my own succesful clothing brand. 
 
 ## MY WORK
 Here is some commission work i made for some clients and some concepts I made in my free time.
