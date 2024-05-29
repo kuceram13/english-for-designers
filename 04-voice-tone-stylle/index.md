@@ -1,4 +1,4 @@
-Tone of Vo
+Tone of Voice
 
 Voice
 
